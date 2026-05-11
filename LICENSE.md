@@ -1,4 +1,4 @@
-#  
+#  vip escape tsunami for brainrots Scripts is the best escape tsunami for brainrots Script, featuring god mode and no cooldown. Safe and powerful for
 
 
 
